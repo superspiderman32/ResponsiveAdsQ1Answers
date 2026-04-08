@@ -1,1 +1,0 @@
-# ResponsiveAdsQ1Answers
